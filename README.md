@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Basitbhat7@gmail.com**
 
-- 📄 Know about my experiences [1+ Years of Experience](1+ Years of Experience)
+- 📄 Know about my experiences (1+ Years of Experience)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
